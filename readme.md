@@ -8,4 +8,4 @@ https://m.youtube.com/watch?v=e5pCeMXn video about Mr. Gibson
 
 
 
-gredits: A2H(for the discord ss's),infisrael(making the video about exposing Mr. Gibson)
+gredits: A2H(for the discord ss's),infisrael(making the video about exposing Mr. Gibson), MrYoda for the SalC1 pic
