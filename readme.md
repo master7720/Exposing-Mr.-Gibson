@@ -4,4 +4,4 @@
 Mr. Gibson is the fake Yaimsputnik5(read more about it here https://2b2t.miraheze.org/wiki/Yaimsputnik5) He lies about being 34 years old and being rich and owning his own company. His github is https://github.com/Yaimsputnik5
 And Yes his about me is all fake. If you have more info about Mr. Gibson please make a pull request or an issue. I will post more info later.
 
-gredits: A2H(for the discord ss's), MrYoda for the SalC1 pic
+gredits: A2H(for the discord ss's), Yung MarYoda for the SalC1 pic
