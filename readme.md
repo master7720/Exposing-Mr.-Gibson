@@ -1,10 +1,10 @@
 Mr Gibson being a tool and full of shit
 
-https://safe.manu.moe/a/cnhNb0Nm (pictures)
+https://safe.manu.moe/a/cnhNb0Nm
+(pictures)
 
 let's go through Gibson aka Yaimsputnik5 line by line
-
-https://safe.manu.moe/iDYq4274.png
+![iDYq4274](https://github.com/master7720/Exposing-Mr.-Gibson/assets/80098736/b7e2582e-3a5a-4d75-bfa4-4f81eaf85bca)
 here we see a screenshot that he posts very often; him attempting to flex both his apparent skills as a programmer but also his friendship with well known people? However ironically when those people are asked about why they were in the repo:
 
 
