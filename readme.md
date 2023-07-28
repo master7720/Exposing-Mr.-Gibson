@@ -56,4 +56,16 @@ The quantities of larping are ridiculous here.
 Mr. Gibson is the fake Yaimsputnik5(read more about it here https://2b2t.miraheze.org/wiki/Yaimsputnik5) He lies about being 34 years old and being rich and owning his own company. His github is https://github.com/Yaimsputnik5
 And Yes his about me is all fake. If you have more info about Mr. Gibson please make a pull request or an issue. I will post more info later.
 
-gredits: master7720,A2H,Yung MarYoda,cha0s,TheTroll2001,aba.a,CatGirlLana,
+![image](https://github.com/master7720/Exposing-Mr.-Gibson/assets/100254404/a0594215-2790-41dd-b3ce-8fbc592cb6b9)
+Mr. Schizo who claims to be an anti pedophile saying this? He obviously broke character.
+
+![image](https://github.com/master7720/Exposing-Mr.-Gibson/assets/100254404/d4ff88f1-e713-4345-9bcd-e087200a0b97)
+Mr. Gibson being called out by a doxbin admin. 
+
+![image](https://github.com/master7720/Exposing-Mr.-Gibson/assets/100254404/e85972d7-9c82-41fb-b388-6fd05f2a1204)
+Mr. Gibson trying to flex LOL
+
+![image](https://github.com/master7720/Exposing-Mr.-Gibson/assets/100254404/ce08419b-1b06-4ba9-9555-f150759ab23f)
+Mr. Gibson some how being so dumb that he tried using someone own skid list against them, the same skid list gibson forked from Master7720. 
+
+gredits: master7720,A2H,Yung MarYoda,cha0s,TheTroll2001,aba.a,CatGirlLana, roostamasta
